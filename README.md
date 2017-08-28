@@ -7,4 +7,4 @@ Group Members
 2. Malto, Reign Emmanuel O. 
 3. Pagaduan, John Carlos E. 
 4. Mariñas, Levie Anne T.
-5. Cadena, Homer A. 
+5. Cadena, John Homer A. 
